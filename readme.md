@@ -12,8 +12,8 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1.
-2.
-3.
-4.
+1. Maria Meriova
+2. Sona Bartekova
+3. Ingrid Bohunicka
+4. Jan Filip Kotora
 
