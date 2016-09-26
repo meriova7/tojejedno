@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Maria Meriova
 2. Jan Filip Kotora
-3.
+3. Sona Bartekova
 4.
 
